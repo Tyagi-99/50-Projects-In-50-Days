@@ -36,4 +36,4 @@ Stay consistent. Stay disciplined. Keep building. 💪
 
 ---
 
-⭐ Follow this repo to track my journey!
+⭐ Follow this repo to track my journey that i am about to start!
